@@ -9,7 +9,7 @@ Currently studying [Your Degree] @ [Your University]<br>
 ---
 
 ### 📫 How to reach me:
-- Email: [your email]
+- Email: najithbinsubair@gmail.com
 - LinkedIn: [your LinkedIn link]
 
 ---
